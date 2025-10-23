@@ -1,0 +1,1 @@
+# Scorohodov-pizh231Analiz
